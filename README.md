@@ -6,3 +6,4 @@ this readme chat
 Yes
 Or you may suggest any other way to communicate like mail ids or any other 
 can you please share are you will be free tomorrow to discuss about our project 
+yaa my mail id - sourabhsisodia1314@gmail.com and i have no idea about git and worksapace do you have any idea ??
