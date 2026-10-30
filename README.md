@@ -11,6 +11,6 @@ Yeah ok i may use msg you on gmail
 can you when you will be free tomorrow and i know very little bit about and i can manage
 okkk you decide your flexible time  expect team mate 4 to 7  
 
-i may available after 9 AM  if it is ok to you u may msg in this readme file or in gmail
+i may available after 10 AM  if it is ok to you u may msg in this readme file or in gmail
 If you are free create hot mail or yahoo mail and update me the mail to add us in our group workplace.Is it ok for you..??
 I think we 2 of us only active in this team remaining all are absent for dialy classes because i dont their github links and all..to add in this repository
