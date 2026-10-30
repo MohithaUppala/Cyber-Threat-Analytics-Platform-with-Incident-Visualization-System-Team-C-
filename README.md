@@ -11,3 +11,4 @@ Yeah ok i may use msg you on gmail
 can you when you will be free tomorrow and i know very little bit about and i can manage
 okkk you decide your flexible time  expect team mate 4 to 7  
 i may available after 9 AM  if it is ok to you u may msg in this readme file or in gmail
+If you are free create yahoo mail and update me the mail(yahoo) to add us in our group workplace is it ok for you
